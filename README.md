@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @agathaaguilarr
+- 🌱 I’m currently learning Biomedical Engineering 
+- 📫 How to reach me agathaagca03@gmail.com
+- Cattt 
